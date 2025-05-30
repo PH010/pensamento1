@@ -1,1 +1,1 @@
-# pensamento1
+#PENSAMENTO1
